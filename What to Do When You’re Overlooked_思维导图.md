@@ -1,0 +1,40 @@
+### What to Do When You’re Overlooked
+- **Introduction to Quiet Culture**
+    - Definition: Refers to environments or cultures where individuals are encouraged to remain humble, modest, and not seek the spotlight.
+    - Contrast with Loud Culture: In contrast, loud cultures emphasize assertiveness, speaking up, and taking up space.
+- **Personal Journey of Jessica Chen**
+    - Background: Former TV news reporter, founder of Soulcast Media, and author of "Smart Not Loud."
+    - Challenges Faced: Struggled with being overlooked at work despite hard work and dedication.
+    - Cultural and Personal Influences: Raised in a conservative, traditional family in the United States; observed quiet culture traits deeply rooted in both personal upbringing and cultural heritage.
+- **Characteristics of Quiet Culture**
+    - Traits: Includes humility, modesty, active listening, and avoiding conflict.
+    - Workplace Implications: Often leads to under-recognition in职场 settings that favor loud culture traits.
+- **Strategies for Quiet Culture Individuals**
+    - Engaging with Others
+        - Communication Skills: Encouraged to shift focus from merely listening to actively engaging and connecting with others meaningfully.
+        - The 4 A Sequence: Acknowledge, Anchor, Answer.
+    - Shifting Work Style
+        - Leveraging Opportunities: Transforming tasks into opportunities for broader engagement within the organization.
+        - Example: Utilizing completed projects to open dialogues with other departments.
+    - Handling Wins
+        - Celebrating Achievements: Developing strategies to effectively communicate successes and impacts to others.
+        - Using Positive Language: Highlighting benefits and outcomes of work in a clear and compelling manner.
+    - Managing Conflict
+        - Approaching Conflicts Constructively: Advocating for oneself proactively in challenging situations.
+        - Importance of Communication: Demonstrating problem-solving abilities and proposing solutions.
+- **Overcoming Internal Biases and Barriers**
+    - Labeling Negative Thoughts: Using metaphors (e.g., "celery" for negative self-talk) to identify and challenge harmful thoughts.
+    - Self-Talk Reframing: Shifting towards positive self-talk to boost confidence and resilience.
+- **Advocating for Oneself**
+    - Act ACCT Framework:
+        - Ask: Directly request opportunities or projects.
+        - Circle Back: Follow-up strategically and provide new insights.
+        - Celebrate: Publicize successes to build visibility and credibility.
+        - Turn Down Requests: Learn to decline offers to focus on priorities.
+- **Managerial Insights**
+    - Understanding Quiet Employees: Recognizing their potential contributions beyond outward communication.
+    - Creating Runways for Participation: Providing platforms for quiet employees to share their ideas and work.
+    - Balanced Recognition: Ensuring equal acknowledgment across the team, regardless of communication style.
+- **Conclusion**
+    - Jessica Chen’s Story: Transition from a quiet to a more assertive professional persona, leveraging quiet culture strengths in new contexts.
+    - Book Summary: Offers practical advice for quiet culture individuals to thrive in职场 environments that favor loudness.
